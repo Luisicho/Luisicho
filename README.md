@@ -17,5 +17,6 @@ Soy Luis Miguel Hernandez🚀 un apasionado desarrollador 💻 con experiencia e
 Estoy buscando colaborar en proyectos 🛠️ emocionantes, poner mis conocimientos en practica, aprender cosas nuevas 📈 y seguir mejorando como profesional 🌟. ¡Si tienes una idea interesante, no dudes en contactarme a mis redes! 📨
 * 🟣 [Instagram](https://www.instagram.com/luisisho18)
 * 🔵 [Facebook](https://www.facebook.com/parangarutir)
+* 🤓 [Linkedin](www.linkedin.com/in/luis-miguel-hernandez-macias)
   
 ¡Explora mis repositorios y si algo te gusta, no olvides dejar una 🌟! 😊
